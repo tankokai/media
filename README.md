@@ -1,2 +1,1 @@
-# media
-Binary files for Tankokai
+### ©2019 Tankokai.com , all rights reserve
