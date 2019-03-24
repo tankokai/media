@@ -1,1 +1,1 @@
-### ©2019 Obed José, all rights reserve
+### ©2019 Tankokai.com , all rights reserve
